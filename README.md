@@ -11,7 +11,7 @@
 
 优势：不限网速，160可选节点，3W个ip，24小时客服支持
 
-# 3.Panda梯子 [Panda官网地址](https://dwz.cn/oL46PiPj)
+# 3.Panda梯子 [Panda官网地址](https://pandavpnpro.com/r/22216799)
 海外华人开发的VPN，起名Panda就是很有识别性了，在国内也很好用
 
 优势：中文客服、中文界面、支付宝支付、一键链接等
